@@ -29,9 +29,9 @@ Method
 
 4. **Ferment at room temperature for 1 1/2 to 2 hours**, or until the dough doubles in size (the length of time will depend on the room temperature)/
 
-5. **Remove the fermented dough from the bowl and divide it in half for sandwich loaves.** Shape the pieces into boules (Page 72 BBA) for loaves. Mist the dough lightly with spray oil and cover with a towel or plastic wrap. Allow to rest for about 20 minutes.
+5. **Remove the fermented dough from the bowl and divide it in half for sandwich loaves.** Shape the pieces into boules ([Page 72 BBA](http://www.amazon.com/The-Bread-Bakers-Apprentice-Extraordinary/dp/1580082688)) for loaves. Mist the dough lightly with spray oil and cover with a towel or plastic wrap. Allow to rest for about 20 minutes.
 
-6. **For loaves, shape as shown on page 81 (BBA)**. Lightly oil two 8 1/2 by 4 1/2 inch loaf pans and place the loaves in the pans.
+6. **For loaves, shape as shown on [Page 81 BBA](http://www.amazon.com/The-Bread-Bakers-Apprentice-Extraordinary/dp/1580082688)**. Lightly oil two 8 1/2 by 4 1/2 inch loaf pans and place the loaves in the pans.
 
 7. **Preheat the oven to 350F.** If you wish to garnish the loaves with poppy or sesame seeds, brush with an egg wash and do so. You may also score them down the center and rub a little vegetable oil in the cut for the classic sandwich bread look.
 
